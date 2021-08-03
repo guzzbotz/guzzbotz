@@ -1,10 +1,9 @@
-- 👋 Hi, I’m @guzzbotz
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+Assalamualaikum cuyy
 
-<!---
-guzzbotz/guzzbotz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Kembali lagi bersama gua guzzbotz 
+ 
+Untuk sc gw gak punya aowkkw
+
+Yahh masih pemula lah :)
+
+Terimakasih :v
